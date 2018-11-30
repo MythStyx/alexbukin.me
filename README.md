@@ -1,2 +1,0 @@
-# alexbukin.me
-alexbukin.me
